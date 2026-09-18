@@ -47,6 +47,6 @@ ________________________________________________________________________________
 
 [My LinkedIn Profile](https://www.linkedin.com/in/chelsea-james-4b5899306/)
 
-![Photos] (kristen.jpg)
+![Photos] (kristen.jpg) 
 
 
