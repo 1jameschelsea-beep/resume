@@ -45,3 +45,4 @@ ________________________________________________________________________________
 ## PORTFOLIO
 
 
+[My LinkedIn Profile] (https://www.linkedin.com/in/chelsea-james-4b5899306/)
