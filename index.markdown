@@ -12,7 +12,7 @@ ________________________________________________________________________________
 
 ## EMPLOYEMENT 
 
-***PART TIME BAKERY CLERK 
+**PART TIME BAKERY CLERK**
 > September 2021 - Present | Real Canadian Superstore 
 - Packages fresh bakery items including bread, pastries, and cakes.
 - Provides product knowledge and recommendations, including information on ingredients and allergens.
@@ -23,7 +23,7 @@ ________________________________________________________________________________
 - Prepares and bakes off various bakery items to be packaged such as pan breads, croissants and pastries. 
 
 
-***PART TIME BARISTA/BAKERY CLERK 
+**PART TIME BARISTA/BAKERY CLERK**
 > December 2023 - March 2024, AVEIRO BAKERY 
 - Provided friendly and efficient customer service during peak hours.
 - Prepared espresso-based drinks and specialty beverages to order.
