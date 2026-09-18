@@ -4,15 +4,17 @@ ________________________________________________________________________________
 
 ## EDUCATION 
 
-> September 2019 - June 2023 | Craig Kielburger Secondary School 
+> September 2019 - June 2023 | Craig Kielburger Secondary School  
+*Milton, Ontario*
 
-> September 2024 - Present | Humber Polytechnic 
 
+> September 2024 - Present | Humber Polytechnic | Graphic Design   
+*Etobicoke, Ontario*   
 ______________________________________________________________________________________________________
 
 ## EMPLOYEMENT 
 
-**PART TIME BAKERY CLERK**
+**PART TIME BAKERY CLERK**    
 September 2021 - Present | Real Canadian Superstore 
 
 > - Packages fresh bakery items including bread, pastries, and cakes.
@@ -24,7 +26,9 @@ September 2021 - Present | Real Canadian Superstore
 > - Prepares and bakes off various bakery items to be packaged such as pan breads, croissants and pastries. 
 
 
-**PART TIME BARISTA/BAKERY CLERK**
+
+
+**PART TIME BARISTA/BAKERY CLERK**   
 December 2023 - March 2024, AVEIRO BAKERY 
 > - Provided friendly and efficient customer service during peak hours.
 > - Prepared espresso-based drinks and specialty beverages to order.
@@ -33,3 +37,9 @@ December 2023 - March 2024, AVEIRO BAKERY
    freshness.
 > - Collaborated with pastry chefs in the preparation of various pastries by shaping dough and preparing
 ingredients.
+
+
+______________________________________________________________________________________________________________
+
+
+## EMPLOYEMENT 
